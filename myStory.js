@@ -1,0 +1,1 @@
+larry the cat liked to catch mice, one day larry ran into bob he challenged larry to see who could catch the most amount of mice. Larry only caought 4 mice, bob caought 5 mice. bob had help from alice, she caought 2 of the mice bob had. Larry didnt know that bob had cheated .
